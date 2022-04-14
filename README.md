@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @MintBGM
+- 👀 I’m interested in progranming,painting and playing games;
+- 🌱 I’m currently learning java and controls the lines when i'm painting.
+- 💞️ I’m looking to collaborate on learning programing as a beginner...
+- 📫 How to reach me :846456071bgm@gmail.com
